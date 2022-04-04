@@ -4,7 +4,7 @@
 <p> ❥ Name: Kyle </p>
 <p> ❥ Pronouns: He / Him, They / Them </p>
 <p> ❥ My interests include: FNAF , Oneshot , Portal , Kipo. I'd love to have more friends with these interests! </p>
-<p> ❥ I would prefer not to interact with you if you fit basic DNI criteria , sexualize my comforts, under 13 , aren't critical with your interests / defend creators of problematic media, "proship" , are strictly a NSFW acc </p>
+<p> ❥ I would prefer not to interact with you if you fit basic DNI criteria , sexualize my comforts, under 13 , aren't critical with your interests / defend creators of problematic media, "proship" , are strictly a NSFW acc, or a "fandom mom" </p>
 <h3> COMFORTS ❤ </h3>
 <img src="https://cdn.discordapp.com/attachments/416748520519761932/947546329083674685/michiru.gif" alt="Michiru Kagemori (BNA)" width="9%">
 <img src="https://cdn.discordapp.com/attachments/416748520519761932/947546331453485176/vanny.gif" alt="Vanny (fnaf)" width="9%">
