@@ -18,5 +18,5 @@
 <p> ❥ Click on the stamps to go to my twitter </p>
   <a href="https://twitter.com/HolicArts"><img src="https://cdn.discordapp.com/attachments/416748520519761932/947546330375548988/vanny2.png" alt="twitter" width="15%">
 <h5> THANK YOU FOR READING !  All stamps belong to me. :)
-also pls commission me I make cool page dolls like this 
-<img src="https://media.discordapp.net/attachments/877800767711502336/878310866305572904/coco_is_here.gif" alt="COOL GIF" width="15%">
+my most recent art btw :D 
+<img align="right" src="https://cdn.discordapp.com/attachments/860703975493074965/1065848136402219048/portrait.png" alt="COOL ART" width="35%">
