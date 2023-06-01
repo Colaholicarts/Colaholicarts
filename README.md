@@ -1,7 +1,7 @@
 ![Welcome_3](https://user-images.githubusercontent.com/100517935/155882759-1283689b-fc8d-4085-b73c-869c23889a90.gif)
 <img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/416748520519761932/947546854298628166/Plight.gif" width="100"/>
 <h1> Comms are here! </h1>
-<a href="https://g0attcomms.carrd.co/"><img src="https://cdn.discordapp.com/attachments/416748520519761932/947546329314394193/lamplighter.png" alt="Carrd" width="15%">
+<a href="https://holic-comms.carrd.co/"><img src="https://cdn.discordapp.com/attachments/416748520519761932/947546329314394193/lamplighter.png" alt="Carrd" width="15%">
 <h2> ABOUT ME ❤ </h2>
 <p> ❥ Name: Kyle </p>
 <p> ❥ Pronouns: He / Him, They / Them </p>
